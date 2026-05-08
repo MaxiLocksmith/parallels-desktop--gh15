@@ -1,4 +1,4 @@
-
+Enhance Parallels Desktop for macOS with Parallels Desktop for macOS ultimate Service: menu-bar-customization & search-enhancement, the #1 service. Includes menu-bar-customization
 
 
 
